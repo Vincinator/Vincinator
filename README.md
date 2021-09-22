@@ -1,4 +1,8 @@
-### Hi there 👋
+### Hey hey hey
+
+💬 Talk with me about **Linux**, **Virtualization** or **Photography** 🤓  
+🌱 Nature is aweseome 
+
 
 <!--
 **Vincinator/Vincinator** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
