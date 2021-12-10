@@ -1,6 +1,6 @@
 ### Hey hey hey
 
-💬 Talk with me about **Linux**
+💬 Talk with me about **Linux**    
 🌱 Nature is aweseome 
 
 
